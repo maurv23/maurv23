@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔧 Mechanical Engineering Looking into Blockchain and Thirdweb.<br>📖 Learning in the process<br>⛰️ Love to hike and play sports 🏀⚽🎾<br>
+🔧 Mechanical Engineering Looking into Blockchain and Web3.<br>📖 Learning in the process<br>⛰️ Love to hike and play sports 🏀⚽🎾<br>
 
 
 ## 🌐 Socials:
